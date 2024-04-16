@@ -1,2 +1,2 @@
 # hello-world
-Analista en informática
+Actualmente me encuentro estudiando Analista en informática en la Universidad Católica
